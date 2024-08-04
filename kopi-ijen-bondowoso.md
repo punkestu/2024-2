@@ -1,4 +1,3 @@
-# Kopi Ijen Bondowoso
 Kalian pasti pernah minum kop... Yaaa setidaknya kalian yang bisa menemukan blog ini pasti pernah minum kopi sebelumnya. Kopi macam apa yang biasanya kalian minum? st\*rbuck? kafe di mall? starling? atau mungkin kopi sachet di warung?. Yaa aku juga pernah minum kopi di tempat-tempat itu dan aku tidak ada masalah dengan rasanya. Namun itu semua berubah setelah aku mencoba dengan lidahku sendiri secangkir kopi yang sebenar-benarnya kopi. 
 
 Ya Kopi Ijen Bondowoso. Kopi yang ternyata cukup terkenal di kalangan pecinta kopi. Kopi yang ternyata menyuplai sebagian dari kebutuhan kopi di pulau jawa (bahkan hingga seluruh indonesia).
