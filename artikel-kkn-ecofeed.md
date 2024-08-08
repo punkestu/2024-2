@@ -1,5 +1,3 @@
-# Inovasi Pakan Fermentasi 'Ecofeed' Membantu Peternak Desa Mengen Atasi Krisis Pakan
-
 _Desa Mengen, Bondowoso, 8 Agustus 2024_ — Di tengah pesona alamnya yang indah, Desa Mengen di Kecamatan Tamanan, Kabupaten Bondowoso, Provinsi Jawa Timur, tengah menghadapi tantangan besar yang mengancam perekonomian dan kesejahteraan peternaknya. Kekurangan pakan ternak, terutama pada masa panen tembakau dan musim kemarau, telah menjadi masalah serius yang mempengaruhi kesehatan dan produktivitas hewan ternak yang menjadi tulang punggung ekonomi desa ini.
 
 Para peternak di Desa Mengen sering kali menghadapi kesulitan dalam menyediakan pakan yang cukup untuk ternak mereka selama periode kritis ini. Namun, solusi inovatif kini muncul dari tim Kuliah Kerja Nyata (KKN) UMD 131 dari Universitas Jember. Mereka memperkenalkan "Ecofeed," sebuah pakan fermentasi berbasis jerami padi yang dirancang untuk menjawab kebutuhan pakan ternak di desa ini.
