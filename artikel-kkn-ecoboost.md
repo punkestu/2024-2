@@ -1,5 +1,3 @@
-# Dari Limbah Ternak ke Pupuk Berkualitas: Desa Mengen Sambut Era Baru dengan 'Ecoboost'
-
 _Desa Mengen, Bondowoso, 8 Agustus 2024_ — Di tengah keindahan alam dan kehidupan pedesaan yang tenang, Desa Mengen, Kecamatan Tamanan, Kabupaten Bondowoso, menghadapi tantangan besar terkait pengelolaan limbah ternak. Dengan mayoritas penduduknya berprofesi sebagai petani dan peternak, penumpukan limbah ternak telah menjadi masalah serius yang mempengaruhi kesehatan lingkungan dan kualitas hidup masyarakat.
 
 Namun, di balik tantangan ini, muncul sebuah inovasi yang membawa harapan baru bagi desa tersebut. Tim Kuliah Kerja Nyata (KKN) UMD 131 dari Universitas Jember memperkenalkan "Ecoboost," sebuah pupuk ternak revolusioner yang dirancang untuk mengubah limbah ternak menjadi solusi berkelanjutan. Dengan menggunakan teknologi pengolahan yang canggih, "Ecoboost" mengolah limbah ternak menjadi kompos berkualitas tinggi yang dapat memperbaiki kesuburan tanah dan meningkatkan hasil pertanian.
