@@ -1,0 +1,11 @@
+# Inovasi Pakan Fermentasi 'Ecofeed' Membantu Peternak Desa Mengen Atasi Krisis Pakan
+
+_Desa Mengen, Bondowoso, 8 Agustus 2024_ — Di tengah pesona alamnya yang indah, Desa Mengen di Kecamatan Tamanan, Kabupaten Bondowoso, Provinsi Jawa Timur, tengah menghadapi tantangan besar yang mengancam perekonomian dan kesejahteraan peternaknya. Kekurangan pakan ternak, terutama pada masa panen tembakau dan musim kemarau, telah menjadi masalah serius yang mempengaruhi kesehatan dan produktivitas hewan ternak yang menjadi tulang punggung ekonomi desa ini.
+
+Para peternak di Desa Mengen sering kali menghadapi kesulitan dalam menyediakan pakan yang cukup untuk ternak mereka selama periode kritis ini. Namun, solusi inovatif kini muncul dari tim Kuliah Kerja Nyata (KKN) UMD 131 dari Universitas Jember. Mereka memperkenalkan "Ecofeed," sebuah pakan fermentasi berbasis jerami padi yang dirancang untuk menjawab kebutuhan pakan ternak di desa ini.
+
+"Ecofeed" merupakan hasil dari proses fermentasi jerami padi menggunakan teknik yang telah diadaptasi untuk meningkatkan kandungan nutrisi pakan. Dengan memanfaatkan bahan yang biasanya terbuang, inovasi ini tidak hanya membantu mengatasi kekurangan pakan tetapi juga mengurangi limbah pertanian. Pakan ini kaya akan protein dan nutrisi penting yang dibutuhkan oleh ternak, sehingga meningkatkan kesehatan dan produktivitas hewan ternak secara signifikan.
+
+Proyek "Ecofeed" ini merupakan contoh nyata dari bagaimana teknologi sederhana dapat memberikan dampak besar pada kehidupan masyarakat pedesaan. Dengan menggunakan jerami padi yang sering kali dibiarkan sebagai limbah, tim KKN UMD 131 berhasil mengubah tantangan menjadi peluang, menawarkan solusi yang berkelanjutan dan ekonomis bagi para peternak.
+
+Keberadaan "Ecofeed" diharapkan tidak hanya meringankan beban peternak selama masa sulit tetapi juga menjadi model bagi desa-desa lain yang menghadapi masalah serupa. Inisiatif ini menunjukkan bagaimana kolaborasi antara akademisi dan masyarakat dapat menghasilkan solusi inovatif yang mendukung ketahanan pangan dan keberlanjutan pertanian. Desa Mengen kini memiliki harapan baru untuk menghadapi tantangan pakan ternak, berkat kreativitas dan dedikasi tim KKN UMD 131.
